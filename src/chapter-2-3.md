@@ -1,5 +1,3 @@
-How to prepare for each stage of the interview process
-======================================================================================================
 
 The interview process can be daunting, but understanding the different stages and how to prepare for them can increase your chances of success. Each stage of the interview process presents unique challenges and opportunities to showcase your skills and qualifications.
 

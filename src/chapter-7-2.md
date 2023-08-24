@@ -1,5 +1,3 @@
-Techniques for demonstrating cultural fit
-================================================================================
 
 Demonstrating cultural fit is important in the job search process because it shows potential employers that you understand and embrace their company culture and values. Employers want to hire candidates who will thrive in their work environment and contribute to their team's success.
 

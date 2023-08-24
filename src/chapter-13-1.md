@@ -1,5 +1,3 @@
-Techniques for answering difficult or unexpected questions
-===============================================================================================================
 
 Interviews can be stressful, especially when the interviewer asks a difficult or unexpected question. These questions may catch you off guard or make you feel uncomfortable, but how you respond can make all the difference in whether you land the job.
 

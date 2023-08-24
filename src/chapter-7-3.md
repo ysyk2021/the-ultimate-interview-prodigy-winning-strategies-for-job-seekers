@@ -1,5 +1,3 @@
-Identifying potential cultural clashes
-=============================================================================
 
 Demonstrating cultural fit is important in the job search process, but it's also important to identify potential cultural clashes that could impact your work experience. A cultural clash occurs when your personal values and beliefs conflict with the company culture or expectations.
 

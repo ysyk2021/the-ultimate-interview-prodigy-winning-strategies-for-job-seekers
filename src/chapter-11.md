@@ -1,5 +1,3 @@
-Chapter 11: Mastering Nonverbal Communication
-=============================================
 
 Nonverbal communication can have a significant impact on how you are perceived during an interview. In this chapter, we will discuss strategies for mastering nonverbal communication to help you make a positive impression and showcase your skills and experience effectively.
 

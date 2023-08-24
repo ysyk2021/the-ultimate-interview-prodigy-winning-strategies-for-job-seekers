@@ -1,5 +1,3 @@
-Controlling Your Own Nonverbal Cues
-==================================================================================
 
 Nonverbal communication is an important aspect of the interview process, as it can convey confidence, competence, and professionalism. In this chapter, we will discuss strategies for controlling your own nonverbal cues to enhance your performance during interviews.
 

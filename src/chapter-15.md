@@ -1,5 +1,3 @@
-Chapter 15: Expert Advice: Insights from Successful Job Seekers and Hiring Managers
-===================================================================================
 
 Interviewing can be a difficult and stressful process for job seekers. However, hearing from successful job seekers and hiring managers can provide valuable insights and strategies for success. In this chapter, we will share interviews with successful job seekers and hiring managers, as well as insider tips and strategies for interviewing success.
 

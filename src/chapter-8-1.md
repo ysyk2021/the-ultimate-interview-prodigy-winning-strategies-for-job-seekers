@@ -1,5 +1,3 @@
-Phone and Video Interviews
-=================================================================================
 
 Phone and video interviews are becoming increasingly common as more companies adopt remote work policies. In this chapter, we will discuss strategies for navigating phone and video interviews to help you make a positive impression and showcase your skills and experience effectively.
 

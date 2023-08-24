@@ -1,5 +1,3 @@
-Techniques for answering common interview questions
-====================================================================================================
 
 Answering common interview questions effectively is crucial for impressing potential employers and increasing your chances of getting hired. Familiarizing yourself with common interview questions and preparing thoughtful responses can help you stand out from other candidates.
 

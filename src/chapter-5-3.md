@@ -1,5 +1,3 @@
-Strategies for building confidence and a winning mindset
-================================================================================================
 
 Preparing for an interview involves more than just researching the company and practicing your responses to common interview questions. Building confidence and a winning mindset can help you perform your best during the interview and increase your chances of getting hired.
 

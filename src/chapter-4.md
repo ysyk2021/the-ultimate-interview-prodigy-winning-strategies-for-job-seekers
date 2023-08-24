@@ -1,5 +1,3 @@
-Chapter 4: Crafting Your Personal Brand
-=======================================
 
 Crafting your personal brand is an important aspect of the job search process. In this chapter, we will discuss strategies for developing a strong personal brand.
 

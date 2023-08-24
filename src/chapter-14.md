@@ -1,5 +1,3 @@
-Chapter 14: Creating Your Own Interview Preparation Plan
-========================================================
 
 Creating a personalized interview preparation plan can help you approach interviews with confidence and showcase your skills and experience effectively. In this chapter, we will discuss how to identify your strengths and weaknesses, develop a personalized interview preparation plan, and cultivate a winning mindset, confidence, and adaptability.
 

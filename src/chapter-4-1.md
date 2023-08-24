@@ -1,5 +1,3 @@
-Developing a strong personal brand
-===========================================================================
 
 Crafting a strong personal brand is essential in the job search process. Your personal brand is how you present yourself to potential employers and differentiate yourself from other candidates.
 

@@ -1,5 +1,3 @@
-Identifying potential interview questions
-==========================================================================================
 
 Researching the company and position before an interview is crucial for demonstrating your interest and preparing thoughtful responses. Understanding the company's mission, culture, and recent developments can also help you identify potential interview questions.
 

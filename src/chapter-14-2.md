@@ -1,5 +1,3 @@
-Developing a Personalized Interview Preparation Plan
-==============================================================================================================
 
 Creating a personalized interview preparation plan is an important aspect of interviewing success. In this chapter, we will discuss strategies for developing a personalized interview preparation plan.
 

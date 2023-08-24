@@ -1,5 +1,3 @@
-What to expect during the interview process
-===========================================================================================
 
 The interview process can be nerve-wracking, especially if you're not sure what to expect. Knowing what to anticipate during each stage of the interview process can help you prepare effectively and increase your chances of success.
 

@@ -1,5 +1,3 @@
-Gathering information about the company and its culture
-========================================================================================================
 
 Researching the company and position before an interview is crucial for demonstrating your knowledge and interest in the company and increasing your chances of getting hired. Gathering information about the company's culture, mission, values, and goals can also help you determine if it's a good fit for your career aspirations.
 

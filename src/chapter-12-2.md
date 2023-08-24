@@ -1,5 +1,3 @@
-The STAR Method for Answering Behavioral Questions
-================================================================================================
 
 Behavioral questions are commonly used in interviews to assess a candidate's past experiences and behaviors. In this chapter, we will discuss the STAR method, an advanced interviewing technique that can help you answer behavioral questions effectively.
 

@@ -1,5 +1,3 @@
-Communicating effectively during the interview
-===============================================================================================
 
 During an interview, you can expect to be asked a variety of common questions that most interviewers ask. These questions are designed to assess your skills, experience, and qualifications and determine if you're the right fit for the job.
 

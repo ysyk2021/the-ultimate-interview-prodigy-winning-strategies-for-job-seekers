@@ -1,5 +1,3 @@
-Tips for Creating an Effective Interview Preparation Plan
-=================================================================================================
 
 Effective interview preparation is essential to success in the job search process. It can help you showcase your skills and experience effectively, build rapport with potential employers, and demonstrate your professionalism. In this chapter, we will discuss tips for creating an effective interview preparation plan.
 

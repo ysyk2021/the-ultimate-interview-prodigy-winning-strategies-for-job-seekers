@@ -1,5 +1,3 @@
-Different types of job interviews
-=================================================================================
 
 The interview process can vary depending on the company, industry, and job position. Understanding the different types of job interviews and their purposes can help you prepare effectively and impress potential employers.
 

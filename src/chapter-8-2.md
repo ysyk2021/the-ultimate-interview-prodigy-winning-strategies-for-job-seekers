@@ -1,5 +1,3 @@
-Group Interviews
-=======================================================================
 
 Group interviews can be intimidating, as you are competing for attention and trying to make a positive impression on multiple interviewers at once. In this chapter, we will discuss strategies for navigating group interviews to help you stand out and showcase your skills and experience effectively.
 

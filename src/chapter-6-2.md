@@ -1,5 +1,3 @@
-Handling difficult interview questions and situations
-======================================================================================================
 
 Handling difficult interview questions and situations can be challenging, but with the right techniques and mindset, you can navigate them successfully. Difficult questions and situations can range from addressing employment gaps to answering unexpected or uncomfortable questions.
 

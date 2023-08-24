@@ -1,5 +1,3 @@
-Reading and interpreting body language
-=====================================================================================
 
 When it comes to communication, nonverbal cues can be just as important as the words we say. In fact, some studies suggest that up to 93% of our communication is nonverbal. This means that if you want to make a good impression during an interview, it's essential to master your nonverbal communication.
 

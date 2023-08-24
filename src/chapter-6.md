@@ -1,5 +1,3 @@
-Chapter 6: Answering Common Interview Questions
-===============================================
 
 Answering common interview questions effectively can help you demonstrate your skills and qualifications and position yourself as a strong candidate for the position. In this chapter, we will discuss techniques for answering common interview questions, handling difficult interview questions and situations, and communicating effectively during the interview.
 

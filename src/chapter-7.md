@@ -1,5 +1,3 @@
-Chapter 7: Demonstrating Cultural Fit
-=====================================
 
 Demonstrating cultural fit is an important aspect of the interview process that can help you stand out as a candidate and increase your chances of landing the job. In this chapter, we will discuss understanding the company culture and values, techniques for demonstrating cultural fit, and identifying potential cultural clashes.
 

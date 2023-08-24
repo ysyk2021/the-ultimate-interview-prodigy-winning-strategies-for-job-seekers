@@ -1,5 +1,3 @@
-Chapter 8: Navigating Special Interview Circumstances
-=====================================================
 
 Interviewing can take many forms, and it's important to be prepared for different types of interview circumstances. In this chapter, we will discuss strategies for navigating special interview circumstances.
 

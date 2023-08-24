@@ -1,5 +1,3 @@
-Creating a Positive First Impression
-===================================================================================
 
 Creating a positive first impression is crucial for setting the tone and establishing rapport with the interviewer. In this chapter, we will discuss strategies for creating a positive first impression through mastering nonverbal communication.
 

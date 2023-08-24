@@ -1,5 +1,3 @@
-Understanding the company culture and values
-===================================================================================
 
 In addition to having the necessary skills and qualifications for the job, employers also want to hire candidates who fit well with their company culture and values. Demonstrating cultural fit can increase your chances of getting hired and ensure a positive work experience.
 

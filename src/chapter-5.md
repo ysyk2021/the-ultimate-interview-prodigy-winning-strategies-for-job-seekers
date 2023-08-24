@@ -1,5 +1,3 @@
-Chapter 5: Preparing for the Interview
-======================================
 
 Preparing for the interview is an important aspect of interviewing success. In this chapter, we will discuss strategies for preparing for the interview.
 

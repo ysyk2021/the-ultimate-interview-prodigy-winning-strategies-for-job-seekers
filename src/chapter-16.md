@@ -1,5 +1,3 @@
-Chapter 16: Leveraging Technology in the Interview Process
-==========================================================
 
 Technology has revolutionized the interview process, offering new tools and opportunities for job seekers to showcase their skills and experience effectively. In this chapter, we will discuss how to leverage technology in the interview process.
 

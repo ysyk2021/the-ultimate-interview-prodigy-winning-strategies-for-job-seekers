@@ -1,5 +1,3 @@
-Cultivating a Winning Mindset, Confidence, and Adaptability
-=====================================================================================================================
 
 Creating your own interview preparation plan is an important aspect of interviewing success. In this chapter, we will discuss strategies for cultivating a winning mindset, confidence, and adaptability to create an effective interview preparation plan.
 

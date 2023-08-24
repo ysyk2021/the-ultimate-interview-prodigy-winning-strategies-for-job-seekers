@@ -1,5 +1,3 @@
-Navigating Video Interviews with Ease
-=================================================================================================
 
 Video interviews are becoming increasingly common as remote work becomes more prevalent, and they require a different set of skills than in-person interviews. In this chapter, we will discuss strategies for navigating video interviews to help you make a positive impression and showcase your skills and experience effectively.
 

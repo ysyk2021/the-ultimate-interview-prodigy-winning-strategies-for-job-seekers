@@ -1,5 +1,3 @@
-Sending Thank-You Notes and Follow-Up Emails
-=========================================================================================
 
 Following up after an interview can help you demonstrate your professionalism and continued interest in the position. In this chapter, we will discuss the importance of sending thank-you notes and follow-up emails, as well as tips for crafting effective messages.
 

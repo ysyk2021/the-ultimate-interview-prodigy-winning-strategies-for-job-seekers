@@ -1,5 +1,3 @@
-Techniques for Managing Interview Anxiety
-=================================================================================
 
 Interview anxiety is a common experience for job seekers. The pressure of presenting yourself effectively and demonstrating your qualifications can be overwhelming.
 

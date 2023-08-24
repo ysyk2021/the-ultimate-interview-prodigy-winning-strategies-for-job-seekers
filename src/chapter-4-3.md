@@ -1,5 +1,3 @@
-Creating a Compelling Elevator Pitch
-=============================================================================
 
 Crafting a strong personal brand is essential to standing out in the job search process. An elevator pitch is a concise, compelling statement that summarizes your professional background and goals. In this chapter, we will discuss how to create a compelling elevator pitch.
 

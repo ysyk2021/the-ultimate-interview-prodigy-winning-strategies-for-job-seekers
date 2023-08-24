@@ -1,5 +1,3 @@
-Understanding Online Assessment Tools
-=================================================================================================
 
 Online assessment tools are becoming increasingly common in the interview process, as they can help employers evaluate candidates more efficiently and accurately. In this chapter, we will discuss strategies for understanding and leveraging online assessment tools to help you stand out and showcase your skills and experience effectively.
 
