@@ -1,5 +1,4 @@
-Chapter 12: Interviews with Successful Job Seekers and Hiring Managers
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into insightful interviews with successful job seekers and hiring managers. Learning from the experiences of those who have excelled in the interview process can provide valuable tips and perspectives to enhance your own approach. By gaining insights from both sides of the hiring equation, you can develop a deeper understanding of what it takes to stand out as a candidate. Let's explore the wisdom shared by these successful job seekers and hiring managers.
 

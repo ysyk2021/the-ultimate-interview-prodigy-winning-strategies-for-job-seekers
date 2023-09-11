@@ -1,5 +1,4 @@
-Chapter 6: Techniques for Answering Difficult or Unexpected Questions
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective techniques for answering difficult or unexpected questions during job interviews. Interviewers may ask challenging questions to assess your critical thinking skills, problem-solving abilities, and how you handle pressure. By utilizing the following techniques, you can navigate these questions with confidence and provide thoughtful responses. Let's dive into the key techniques for answering difficult or unexpected questions.
 

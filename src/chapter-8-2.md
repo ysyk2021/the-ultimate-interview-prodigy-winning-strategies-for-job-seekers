@@ -1,5 +1,4 @@
-Chapter 12: Mastering Group Interviews
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the strategies for mastering group interviews. Group interviews involve multiple candidates being assessed simultaneously by one or more interviewers. This format allows employers to observe how candidates interact, collaborate, and demonstrate their skills in a group setting. By understanding the dynamics of group interviews and implementing the following strategies, you can navigate this unique format with confidence and stand out from the competition. Let's explore the key techniques for mastering group interviews.
 

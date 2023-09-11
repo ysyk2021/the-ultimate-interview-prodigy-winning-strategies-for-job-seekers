@@ -1,5 +1,4 @@
-Chapter 12: Understanding the Salary Negotiation Process
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the salary negotiation process and provide insights and strategies to help you navigate this crucial stage of the job search. Understanding how salary negotiations work and implementing effective techniques can ensure you secure fair compensation and maximize your earning potential.
 

@@ -1,5 +1,4 @@
-Chapter 7: Understanding the Company Culture and Values
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the importance of understanding the company culture and values during the job search process. By comprehending and aligning with a company's culture and values, you can increase your chances of finding a fulfilling and successful career fit.
 

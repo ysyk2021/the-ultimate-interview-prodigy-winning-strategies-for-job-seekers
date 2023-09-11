@@ -1,5 +1,4 @@
-Chapter 12: Tips for Turning Negative Aspects into Positives
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective tips for turning negative aspects into positives during the job search process. Everyone has aspects of their professional history or qualifications that may be perceived as negative by potential employers. However, by reframing these negatives and highlighting the positive aspects, you can present yourself as a strong candidate. Let's dive into the key tips for turning negative aspects into positives.
 

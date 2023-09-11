@@ -1,5 +1,4 @@
-Chapter 9: Identifying Potential Cultural Clashes
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques for identifying potential cultural clashes during the job search and interview process. Cultural clashes occur when there is a mismatch between a candidate's values, working style, or behaviors and the culture of the organization. By being aware of potential clashes, you can make informed decisions about your fit within a company's culture.
 

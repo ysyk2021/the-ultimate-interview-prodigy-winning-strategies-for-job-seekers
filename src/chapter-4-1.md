@@ -1,5 +1,4 @@
-Chapter 7: Developing a Strong Personal Brand
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of developing a strong personal brand for job seekers. Building a compelling personal brand can differentiate you from other candidates, showcase your unique strengths and qualities, and leave a lasting impression on potential employers.
 

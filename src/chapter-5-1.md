@@ -1,5 +1,4 @@
-Chapter 4: Tips for Creating an Effective Interview Preparation Plan
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will discuss tips for creating an effective interview preparation plan. Proper preparation is essential for performing well in interviews and increasing your chances of securing the job. By following these tips, you can develop a comprehensive plan that covers all aspects of interview preparation.
 

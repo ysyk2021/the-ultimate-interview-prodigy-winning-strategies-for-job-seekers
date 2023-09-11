@@ -1,5 +1,4 @@
-Chapter 10: The STAR Method for Answering Behavioral Questions
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the STAR method for answering behavioral questions during interviews. Behavioral questions are designed to assess your past experiences and behaviors to predict your future performance. The STAR method provides a structured framework for effectively organizing your responses, allowing you to showcase your skills, accomplishments, and problem-solving abilities.
 

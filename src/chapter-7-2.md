@@ -1,5 +1,4 @@
-Chapter 8: Techniques for Demonstrating Cultural Fit
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques for effectively demonstrating cultural fit during the interview process. Cultural fit refers to how well a candidate's values, behaviors, and working style align with the organization's culture. By showcasing your compatibility with the company's culture, you can increase your chances of securing a job offer.
 

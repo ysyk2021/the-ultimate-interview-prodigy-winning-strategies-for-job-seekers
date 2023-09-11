@@ -1,5 +1,4 @@
-Chapter 3: Creating a Positive First Impression
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for creating a positive first impression during the job search process. A strong first impression is crucial as it sets the tone for your entire interaction with potential employers. By implementing the following tips, you can ensure that you make a positive impact right from the start. Let's dive into the key strategies for creating a positive first impression.
 

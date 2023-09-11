@@ -1,5 +1,4 @@
-Chapter 6: Demonstrating Leadership Skills and Potential
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for highlighting your leadership skills and potential during the job search process. Demonstrating strong leadership abilities is highly valued by employers and can significantly enhance your chances of securing a position of influence within an organization. By following these strategies, you can effectively showcase your leadership skills and potential to impress potential employers.
 

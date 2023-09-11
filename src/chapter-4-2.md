@@ -1,5 +1,4 @@
-Chapter 2: Identifying Your Unique Value Proposition
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the process of identifying your unique value proposition as a job seeker. Your value proposition is the combination of skills, experiences, and qualities that make you stand out from other candidates in the job market. Understanding and articulating your unique value proposition is crucial for effectively positioning yourself and landing your dream job.
 

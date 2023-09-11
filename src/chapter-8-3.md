@@ -1,5 +1,4 @@
-Chapter 18: Mastering Second-Round and Final Interviews
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the strategies for mastering second-round and final interviews. Congratulations on making it to this stage! Second-round and final interviews are critical steps in the hiring process where you have the opportunity to showcase your qualifications, fit, and enthusiasm in more detail. By understanding the unique aspects of these interviews and implementing the following strategies, you can increase your chances of success and secure the job offer. Let's delve into the key techniques for mastering second-round and final interviews.
 

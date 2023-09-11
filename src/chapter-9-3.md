@@ -1,5 +1,4 @@
-Chapter 15: What to Do If You Don't Get the Job
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will discuss crucial steps to take if you don't get the job you applied for. While receiving a rejection can be disheartening, it's essential to stay positive and proactive in your job search. By following these strategies, you can turn a setback into an opportunity for growth and future success.
 

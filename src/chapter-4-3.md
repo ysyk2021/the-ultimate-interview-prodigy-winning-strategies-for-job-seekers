@@ -1,5 +1,4 @@
-Chapter 3: Creating a Compelling Elevator Pitch
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the art of crafting a compelling elevator pitch that effectively communicates your value proposition as a job seeker. An elevator pitch is a concise and persuasive summary of who you are, what you do, and what unique skills and qualities you bring to the table. Mastering the elevator pitch is crucial for making a strong first impression and capturing the attention of potential employers.
 

@@ -1,5 +1,4 @@
-Chapter 8: Tips for Researching and Determining Fair Compensation
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore tips for researching and determining fair compensation during the job search process. It's crucial to have a clear understanding of the market value for your skills and experience to ensure you negotiate fair and competitive compensation. By following these tips, you can conduct effective research and make informed decisions regarding salary expectations.
 

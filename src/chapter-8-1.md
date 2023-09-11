@@ -1,5 +1,4 @@
-Chapter 7: Excelling in Phone and Video Interviews
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the strategies for excelling in phone and video interviews. In today's digital age, phone and video interviews have become increasingly common as a preliminary step in the hiring process. These types of interviews present unique challenges, such as limited nonverbal cues and potential technical difficulties. However, with the right preparation and approach, you can make a positive impression and effectively communicate your qualifications. Let's delve into the key techniques for excelling in phone and video interviews.
 

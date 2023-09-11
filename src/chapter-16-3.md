@@ -1,5 +1,4 @@
-Chapter 8: Navigating Video Interviews with Ease
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for successfully navigating video interviews. As technology becomes increasingly prevalent in the hiring process, it is essential to adapt and excel in virtual interview settings. By following these strategies, you can confidently navigate video interviews and leave a lasting impression on potential employers.
 

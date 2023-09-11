@@ -1,5 +1,4 @@
-Chapter 6: Understanding Online Assessment Tools
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of understanding online assessment tools during the job search process. Many employers utilize these tools to evaluate candidates' skills, aptitude, and fit for the role. By familiarizing yourself with online assessment tools and how they work, you can better prepare for success and showcase your abilities. Let's dive into the key aspects of understanding online assessment tools.
 
